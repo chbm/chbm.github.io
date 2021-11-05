@@ -1,4 +1,4 @@
-# Iminente (The making of)
+# The Wallflowers (The making of)
 
 I’m really happy with the result of our work at Iminente as part of Truphone's sponsorship of Iminente 2021.
 I’ve already wrote somewhere else about the wonderful and inspiring work we did with the kids of PER11. This is about creating the installation you hopefully had the chance to experience at the festival. Of course, this isn't the whole story, just my story.
